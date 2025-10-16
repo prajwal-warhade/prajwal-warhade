@@ -10,7 +10,7 @@
 💞️ Open to collaborating with companies or open-source projects focused on real-world problem-solving.
 
 📫 Reach me at: [prajwalwarhade07@gmail.com
-] (replace with your real contact or LinkedIn link)
+]
 
 😄 Pronouns: He/Him
 
